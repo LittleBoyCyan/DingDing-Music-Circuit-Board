@@ -4,4 +4,4 @@
 
 2016년 10월 서울, 세운상가에서 열린 메이커스 플랫폼 행사에서 세운상가의 마스터분들과의 협업으로 서울문화재단과 함께 제작하였습니다. 
 
-![alt tag](https://dl.dropboxusercontent.com/u/18945577/LittleBoyCyan_150px.png)
+![alt tag](https://dl.dropboxusercontent.com/u/18945577/Github%20-%20LittleBoyCyan/DingDingMusicCircuitBoard.jpg)
